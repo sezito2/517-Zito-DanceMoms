@@ -7,6 +7,12 @@ Season 4 Episode 7 Updates
 ## Featured Moms
 * Kelly
     
-    Daughters: Brooke & Paige
+   * Daughters: Brooke & Paige
+
+
 ## Pyramid
+
+1. Maddie
+2. Paige, Brooke
+3. Mackenzie, Nia, Kendall, Chloe
 
