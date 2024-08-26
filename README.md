@@ -1,2 +1,12 @@
-# 517-Zito-DanceMoms
- practice repo with dance moms update
+# Dance Moms
+"Big Trouble in the Big Apple"
+
+Season 4 Episode 7 Updates
+
+## Summary 
+## Featured Moms
+* Kelly
+    
+    Daughters: Brooke & Paige
+## Pyramid
+
